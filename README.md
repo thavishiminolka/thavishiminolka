@@ -2,7 +2,7 @@
 
 - 🌱Currently I'm an IT Undergraduate at University of Moratuwa
 
-- 📫 How to reach me thavishiminolka@gmailcom
+- 📫 How to reach me thavishiminolka@gmail.com
 
 
 <!---
